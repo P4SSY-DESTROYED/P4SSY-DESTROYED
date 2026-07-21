@@ -1,11 +1,32 @@
 # P4SSY-DESTROYED
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
-  </a>
-</p>
+<h6 align="center">
+
+  ![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=848484) <h6 align="center">
+
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=100000000000&color=710A0A&width=735&lines=ENG\RUS" alt="Typing SVG" /></a> </p>
   
-    DNI: 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&redirect=true)
+  
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000000000000&color=710A0A&width=735&lines=СHECK+OUT+THE+BYI/DNI" alt="Typing SVG" /></a> 
+
+<p align="center" style="font-size: 1.4em; font-weight: bold;">
+  ɪ ᴛᴇɴᴅ ᴛᴏ ᴍᴀᴋᴇ ɴꜱꜰᴡ ᴊᴏᴋᴇꜱ ᴀɴᴅ ꜱᴡᴇᴀʀ ᴀ ʟᴏᴛ.<br>
       
-   
+    склонен к NSFW‑шуткам и часто ругаюсь
+
+<p align="center" style="font-size: 1.4em; font-weight: bold;">
+ ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ɴᴏᴛ ᴛʜᴇ ᴏɴᴇ ᴛᴏ ꜱᴛᴀʀᴛ ᴄᴏɴᴠᴇʀꜱᴀᴛɪᴏɴꜱ, ʙᴜᴛ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴍᴇꜱꜱᴀɢᴇ ᴍᴇ – ɪ'ᴍ ᴏᴘᴇɴ! ɪ ᴍɪɢʜᴛ ʙᴇ ꜱʟᴏᴡ ᴛᴏ ʀᴇᴘʟʏ ʙᴇᴄᴀᴜꜱᴇ ɪ'ᴍ ᴏꜰᴛᴇɴ ɪɴ ᴀɴᴏᴛʜᴇʀ ᴛᴀʙ ᴏʀ ᴀꜰᴋ, ꜱᴏ ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ɪꜰ ɪ ᴅᴏɴ'ᴛ ɢᴇᴛ ʙᴀᴄᴋ ʀɪɢʜᴛ ᴀᴡᴀʏ. ɪ ᴄᴀɴ ᴄᴏᴍᴇ ᴏꜰꜰ ᴀꜱ ʙʟᴜɴᴛ ᴏʀ ʀᴜᴅᴇ – ᴛʜᴀᴛ'ꜱ ᴍᴏꜱᴛʟʏ ʙᴇᴄᴀᴜꜱᴇ ᴍʏ ᴇɴɢʟɪꜱʜ ɪꜱɴ'ᴛ ɢʀᴇᴀᴛ, ᴘʟᴜꜱ ɪ ʜᴀᴠᴇ ᴀᴅʜᴅ – ʙᴜᴛ ᴅᴇᴇᴘ ᴅᴏᴡɴ ɪ'ᴍ ꜰʀɪᴇɴᴅʟʏ ᴀɴᴅ ᴄʜɪʟʟ.<br>
+      
+    редко начинаю разговоры первым, но не стесняйтесь писать мне - я открыт к общению. 
+    могу отвечать медленно, потому что часто сижу в другой вкладке или отхожу, так что
+    не удивляйтесь, если я не отвечу сразу
+</p>
+
+<p align="center" style="font-size: 1.4em; font-weight: bold;">
+   ʜᴏᴡᴇᴠᴇʀ, ᴅɴɪ ɪꜰ ʏᴏᴜ'ʀᴇ ɪɴᴛᴏ: ꜱᴋɪɴ ᴄᴏᴘʏɪɴɢ / ᴅᴇꜱɪɢɴ ᴛʜᴇꜰᴛ, ᴍɪɴᴏʀꜱ (ᴜɴʟᴇꜱꜱ ʏᴏᴜ ᴄʟᴇᴀʀʟʏ ꜱᴛᴀᴛᴇ ʏᴏᴜʀ ᴀɢᴇ ɪɴ ʏᴏᴜʀ ʙɪᴏ ᴏʀ ᴜᴘꜰʀᴏɴᴛ), ᴘᴏʟɪᴛɪᴄꜱ ᴊᴜɴᴋɪᴇꜱ, ᴏʀ ᴘᴏɪɴᴛʟᴇꜱꜱ ᴅʀᴀᴍᴀ. ɪꜰ ʏᴏᴜ'ʀᴇ ᴀ ᴍɪɴᴏʀ ᴀɴᴅ ʏᴏᴜ ᴅᴏɴ'ᴛ ᴛᴇʟʟ ᴍᴇ (ᴀɴᴅ ɪᴛ'ꜱ ɴᴏᴛ ɪɴ ʏᴏᴜʀ ᴘʀᴏꜰɪʟᴇ), ɪ ᴡᴏɴ'ᴛ ᴛᴀᴋᴇ ʀᴇꜱᴘᴏɴꜱɪʙɪʟɪᴛʏ ɪꜰ ɪ ᴀᴄᴄɪᴅᴇɴᴛᴀʟʟʏ ꜱᴀʏ ꜱᴏᴍᴇᴛʜɪɴɢ ʏᴏᴜ ꜰɪɴᴅ ɪɴᴀᴘᴘʀᴏᴘʀɪᴀᴛᴇ – ᴛʜᴀᴛ'ꜱ ᴏɴ ʏᴏᴜ. ᴀɴᴅ ɴᴏ, ɪ ᴡᴏɴ'ᴛ ᴀᴘᴏʟᴏɢɪꜱᴇ – ɪ'ʟʟ ᴊᴜꜱᴛ ʜɪᴅᴇ/ʙʟᴏᴄᴋ ʏᴏᴜ ɪꜰ ʏᴏᴜ ꜱᴛᴀʀᴛ ᴍᴀᴋɪɴɢ ᴀ ꜱᴄᴇɴᴇ ᴏᴠᴇʀ ɪᴛ.<br>
+</p>
+
+    ᴅɴɪ: копирование скинов; несовершеннолетние; моралфаги; любители политики и срачей. 
+    если вы несовершеннолетний и не скажете мне, то я не беру на себя ответственность,
+    если случайно выдам какое-нибудь дерьмо
