@@ -4,8 +4,7 @@
 
   ![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=848484) <h6 align="center">
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=761e1e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&redirect=true)
 
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000000000000&color=710A0A&size=20&&width=735&lines=♰♰♰" alt="Typing SVG" /></a> 
 
