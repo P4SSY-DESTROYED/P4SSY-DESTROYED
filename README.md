@@ -4,10 +4,12 @@
 
   ![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=848484) <h6 align="center">
 
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=100000000000&color=710A0A&width=735&lines=ENG\RUS" alt="Typing SVG" /></a> </p>
-  
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pmb4lg4q2ogpm2ksvjgrvkloza&redirect=true)
-  
+
+<img src="https://github.com/P4SSY-DESTROYED/EV.EVSY/blob/main/NewCanvas121.png" alt="image" style="width: 100%;">
+
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=100000000000&color=710A0A&width=90&lines=ENG\RUS" alt="Typing SVG" /></a> </p>
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000000000000&color=710A0A&width=735&lines=СHECK+OUT+THE+BYI/DNI" alt="Typing SVG" /></a> 
 
 <p align="center" style="font-size: 1.4em; font-weight: bold;">
@@ -30,3 +32,4 @@
     ᴅɴɪ: копирование скинов; несовершеннолетние; моралфаги; любители политики и срачей. 
     если вы несовершеннолетний и не скажете мне, то я не беру на себя ответственность,
     если случайно выдам какое-нибудь дерьмо
+<img src="https://github.com/P4SSY-DESTROYED/EV.EVSY/blob/main/Screenshot_11.png" alt="image" style="width: 100%;">
