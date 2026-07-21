@@ -1,4 +1,4 @@
-# P4SSY-DERSTROYED
+# P4SSY-DESTROYED
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3153etrmxxnhlwtdj4i3q4z2bsci&redirect=true">
