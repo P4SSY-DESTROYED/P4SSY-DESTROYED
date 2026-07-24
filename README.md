@@ -14,7 +14,7 @@
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000000000000&color=710A0A&width=735&lines=СHECK+OUT+BYI/DNI" alt="Typing SVG" /></a> 
 
 <p align="center" style="font-size: 1.4em; font-weight: bold;">
-  ɪ ᴛᴇɴᴅ ᴛᴏ ᴍᴀᴋᴇ ɴꜱꜰᴡ ᴊᴏᴋᴇꜱ ᴀɴᴅ ꜱᴡᴇᴀʀ ᴀ ʟᴏᴛ.<br>
+  ɪ ᴛᴇɴᴅ ᴛᴏ ᴍᴀᴋᴇ ɴꜱꜰᴡ ᴊᴏᴋᴇꜱ ᴀɴᴅ ꜱᴡᴇᴀʀ.<br>
       
     склонен к NSFW‑шуткам и кусаюсь
 
